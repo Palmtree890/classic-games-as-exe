@@ -1,1 +1,1 @@
-# classic ganes as exe
+# classic games as exe
